@@ -1,1 +1,1 @@
-# Ahmet-Efe-Yigit
+Selam, Ahmet Efe Yiğitin readme'si.
